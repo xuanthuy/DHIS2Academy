@@ -3,7 +3,7 @@
 Wrinkles reflected from the old mirror
 Hair transformed into difference color
 Fragrance faded away long time ago
-Nothing remain for dreaming about new love
+Nothing remain for dreaming about love
 
 Hence freeze warm heart in the winter
 Rely on children for collecting laughters
